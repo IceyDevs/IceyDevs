@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @IceyDevs. Still learning but getting there :D
+- 👋 Hello there! Welcome! Still trying to learn a whole world of computers and codes, but we're getting there :D
